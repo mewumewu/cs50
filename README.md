@@ -6,4 +6,5 @@ he gave me a disgusted look and mumbled something like
 "get lost, bitch. the last time i tried, you were tigher than my indentations."
 his pants raised an error. a big one.
 i closed his laptop and kissed him.. why? 
-probably because he looked so hot.
+probably because he looked so hot. 
+Hello World!
